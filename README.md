@@ -1,1 +1,0 @@
-# wachirawit.github.io
